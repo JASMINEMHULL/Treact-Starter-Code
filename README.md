@@ -1,0 +1,1 @@
+This is my first larger project for FES institute bootcamp and working on it for months at a time from being overwhelmed and confused brought me to a delay this long. Im hoping I ironed everything out by now because I'm not sure who or how to ask for help yet.
